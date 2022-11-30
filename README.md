@@ -1,2 +1,1 @@
-# hjsjsiwjwjwj
-Jsjsjssjsj
+#ogo#mavi&tik#alıyorum#._sta
